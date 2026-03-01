@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MOGP940803HTCNRD06
+MOGP940803HTCNRD06
